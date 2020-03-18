@@ -5,7 +5,7 @@
 
 - 20 Single Unders
 - 15 [Shoulder Taps](http://youtu.be/F2IH6omfYec)
-- 10 [Pass Throughs](https://youtu.be/iLup2Kn9INM)
+- 10 [Pass Throughs](https://youtu.be/iLup2Kn9INM)*
 - 5 [Inchworm to Push-ups](https://youtu.be/Et0WRT6Q3sA)
 
 * Use broomstick, towel or band
@@ -13,38 +13,60 @@
 ### EQUIPMENT VERSION
 
 “Palace” 
+
 AMRAP 6:
+
 2 Single DB Reverse Lunges - 20 Double-Unders
+
 4 Single DB Reverse Lunges - 20 Double-Unders
+
 6 Single DB Reverse Lunges - 20 Double-Unders
+
 Continue to add (2) reverse lunges per round
+
 
 Rest 2:00
 
 AMRAP 6:
+
 2 Single DB Power Snatches -20 Double-Unders
+
 4 Single DB Power Snatches -20 Double-Unders
+
 6 Single DB Power Snatches -20 Double-Unders
+
 Continue to add (2) power snatches per round
+
 
 ====
 
 ### NO EQUIPMENT VERSION
 
 “Palace”
+
 AMRAP 6:
+
 2 [Odd-Object Reverse Lunges](https://youtu.be/Lc3gBYXT2lI) - 20 Odd-Object Lateral Hops
+
 4 Odd-Object Reverse Lunges - 20 Odd-Object Lateral Hops
+
 6 Odd-Object Reverse Lunges - 20 Odd-Object Lateral Hops
+
 Continue to add (2) reverse lunges per round
+
 
 Rest 2:00
 
 AMRAP 6:
+
 2 [Odd-Object Ground to Overhead](https://youtu.be/kRsckQhX0is) - 20 Odd-Object Lateral Hops
+
 4 Odd-Object Ground to Overhead - 20 Odd-Object Lateral Hops
+
 6 Odd-Object Ground to Overhead - 20 Odd-Object Lateral Hops
+
 Continue to add (2) Odd-Object Ground to Overhead per round
+
 
 *[[Video] on Odd-Object Addition](https://youtu.be/babynjrLqbg)*
 
@@ -148,7 +170,7 @@ Bodyweight “Pervail”
 800m Run
 50 Sit-Ups
 50 Air Squats
-
+dcd
 ---
 
 [Comptrain site](https://comptrain.co/home-gym/)
