@@ -16,7 +16,7 @@
 
 AMRAP 6:
 
-2 Single DB Reverse Lunges - 20 Double-Unders
+2 [Single DB Reverse Lunges](https://youtu.be/ZsmsBmOMtnw) - 20 Double-Unders
 
 4 Single DB Reverse Lunges - 20 Double-Unders
 
@@ -29,11 +29,11 @@ Rest 2:00
 
 AMRAP 6:
 
-2 Single DB Power Snatches -20 Double-Unders
+2 [Single DB Power Snatches](https://youtu.be/9520DJiFmvE) - 20 Double-Unders
 
-4 Single DB Power Snatches -20 Double-Unders
+4 Single DB Power Snatches - 20 Double-Unders
 
-6 Single DB Power Snatches -20 Double-Unders
+6 Single DB Power Snatches - 20 Double-Unders
 
 Continue to add (2) power snatches per round
 
