@@ -1,3 +1,43 @@
+## HOME GYM THURSDAY // 3.19.2020
+
+## Farm Land
+
+```
+Stimulus
+- Looking to get as many rounds and reps as possible in this 15 minutes workout
+- Pick a reo scheme for pull-ups that allows you to maintain a steady pace for the whole 15 minutes
+- Example Pull-Up rep schemes
+5-4
+4-3-2
+3-3-3
+3-2-2-2
+```
+
+### EQUIPMENT VERSION
+
+AMRAP 15:
+
+9 Strict Pull-Ups
+
+15 Hand-Release Pushups
+
+21 [Dumbbell Swings](https://youtu.be/O8hRTgHb6Uc)
+
+
+### NO EQUIPMENT VERSION
+
+AMRAP 15:
+
+15 Hand-Release Pushups
+
+18 [Bent over Backpack Rows](https://youtu.be/5bTX5qKWtEA)
+
+21 Glute Bridges
+
+[How to Pack your Backpack for Efficiency ****](https://youtu.be/babynjrLqbg)
+
+---
+
 ## HOME GYM WEDNESDAY // 3.18.2020 
 
 ## Warm-UP
